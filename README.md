@@ -6,6 +6,6 @@
 
 Timezone: GMT + 7
 
-Now, I'm on holiday! 
-
+From earth!
+Go to earth!
 If you want to be friends with me via Discord🎮🎞🎪
